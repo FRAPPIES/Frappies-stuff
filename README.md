@@ -1,2 +1,1 @@
-# Frappies-stuff
-Homepage i guess?
+Huh, you're looking at this, surprising, you've found this mod, and decided to click the link! Well, thanks, this mod just adds alot of stuff- though not a mega mod, just a few armor peices- new npc drops, and lots of weapons.
